@@ -1,4 +1,4 @@
-## CREDITS TO ORIGINAL CREATORS [HERE](https://github.com/SuperTeamXP/)
+## CREDITS TO ORIGINAL REPO CREATOR(S) [HERE](https://github.com/SuperTeamXP/)
 
 ## HEY YOU, yeah you Jayden, go to the potato version instead [here](https://github.com/SuperTeamXP/FNF-DUSTTALE-Web-Potato-Device) cause iPads are crappy and can't handle as much, and ur S U S
 
